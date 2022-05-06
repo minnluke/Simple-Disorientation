@@ -5,4 +5,4 @@ Website: https://minn-maung-simple-disorientation.glitch.me
 
 VR Room: https://simple-disorientation.glitch.me
 
-Plug-in: 
+Thesis: https://vimeo.com/manage/videos/707059123
